@@ -5,7 +5,7 @@ May I remind that these are my opinions only and I love all the Harry Potter boo
 
 
 
-**7. Harry Potter and The Chamber of Secrets**
+**7.Harry Potter and The Chamber of Secrets**
 
 ![Harry Potter and The Chamber of Secrets](https://i.gr-assets.com/images/S/compressed.photo.goodreads.com/books/1474169725l/15881._SY475_.jpg)
 
