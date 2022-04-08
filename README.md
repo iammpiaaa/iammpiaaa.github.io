@@ -37,7 +37,7 @@ May I remind that these are my opinions only and I love all the Harry Potter boo
 
 **2. Harry Potter and The Goblet of Fire**
 
-![Harry Potter and The Goblet of Fire](https://static.wikia.nocookie.net/harrypotter/images/d/d9/Goblet_fire_cover.jpg/revision/latest/scale-to-width-down/250?cb=20070328184800)
+![Harry Potter and The Goblet of Fire](https://i.gr-assets.com/images/S/compressed.photo.goodreads.com/books/1554006152l/6.jpg)
 
 >As to why this is my second favorite is because this book was fun to read. The Tri-Wizard Tournament is an enjoyable event to read about. The different challenges Harry had to face are unique and entertaining. I like how this book expands the wizarding world. Introducing the Quidditch World Cup, Durmstrang, and Beauxbatons. And one of the best part in this book is when we meet Voldemort. Reading it was quite thrilling
 
